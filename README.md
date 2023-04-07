@@ -22,6 +22,11 @@ Email: christian.satu123@gmail.com
 
 - Crescer na area e se desenvolver
 
+## Qualidades
 
+- Trabalho em equipe
+- Proatividade
+- Foco
+- Noçao de tempo
 
 
