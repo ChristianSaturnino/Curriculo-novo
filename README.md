@@ -12,4 +12,12 @@ Telefone: (14) 587959864
 
 Email: christian.satu123@gmail.com
 
+---
+
+## Experencia
+
+- Nao possuo experiencia na area
+
+
+
 
