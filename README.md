@@ -18,6 +18,10 @@ Email: christian.satu123@gmail.com
 
 - Nao possuo experiencia na area
 
+## Objetivo
+
+- Crescer na area e se desenvolver
+
 
 
 
