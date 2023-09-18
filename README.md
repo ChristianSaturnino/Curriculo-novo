@@ -12,7 +12,7 @@ pessoais em que trabalho frequentemente usando estas habilidades.
 
 ## Dados Pessoais
 
-Email: christian.satu123@gmail.com
+Email: christian.saturnino95@hotmail.com
 
 ---
 
@@ -52,7 +52,7 @@ Email: christian.satu123@gmail.com
 
 ## Qualidades
 
-E- spirito de Liderança
+- Espirito de Liderança
 
 - Proatividade
 
