@@ -18,7 +18,7 @@ Email: christian.satu123@gmail.com
 
 ## Formação
 
--Cursando Análise e Desenvolvimento de Sistemas - Unimar
+- Cursando Análise e Desenvolvimento de Sistemas - Unimar
 2 Termo
 
 ## Experencia
