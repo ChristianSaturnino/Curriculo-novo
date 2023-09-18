@@ -45,7 +45,7 @@ Email: christian.saturnino95@hotmail.com
 - CSS - Nível Básico
 
 - JAVASCRIPT - Nível Básico
-- 
+
 - Inglês - Intermediário
 
 ---
